@@ -1,1 +1,1 @@
-https://lizza.github.io/event.html
+https://shukhratll.github.io/
