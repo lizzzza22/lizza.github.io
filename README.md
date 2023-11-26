@@ -1,1 +1,1 @@
-https:/lizza.github.io/.github.io/events.html
+https://lizza.github.io/event.html
